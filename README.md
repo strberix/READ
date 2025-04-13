@@ -5,7 +5,7 @@ Heyy losersss!
 
 im amethyst ~ but you can call me solar or sol too.
 
-im an amethyst kin ~
+im an amethyst fictionkin ~
 i dont roleplay !!
 
 please keep in mind i am a minor. dont be weird.
